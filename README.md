@@ -28,8 +28,6 @@ https://mo-replit-thu-xem.fuckmotheryou.repl.co/bugdilink?key=svduyanhoccho&link
 
 -----
 
------
-
 ### <p align="center">😼 Help Contact 😼</p>
 <p align="center">
 <strong>
