@@ -24,7 +24,6 @@ https://mo-replit-thu-xem.fuckmotheryou.repl.co/bugdilink?key=svduyanhoccho&link
 ```
 {"api": "KhoiHuynh1109", "status": "success", "url": "https://anhgit.site/key?key=tien_tt799659367"}
 ```
-<br></br>
 
 -----
 
